@@ -2,9 +2,11 @@
 
 Welcome to my corner on the internet!
 
-I am a Founding Member at an early-stage YC fintech startup, Swadesh, where I work as a Software Engineer. I have graduated recently, in 2021, from an undergraduate degree in Computer Science and Engineering.
+I work as a Software Engineer at smallcase, which is a platform to invest in model portfolios of stocks, ETFs and REITs. Prior to that, I worked at a bunch of tech companies ranging from a unicorn in India to an early-stage YC fintech startup.
 
-I like reading books, particularly non-fiction, though I cannot say I am an active reader having read only a limited number of books. Besides that, I have been following Football since my childhood and only recently started watching Formula 1.
+Also, I volunteer at iSPIRT to build impactful products for the Indian masses. Currently, I am working on the Indian Software Product Registry (ISPR).
+
+I like reading books, particularly non-fiction. Besides that, I have been following Football since my early childhood, and only recently started watching Formula 1.
 
 Head out to [my website](https://saranshabd.com) to know more!
 
