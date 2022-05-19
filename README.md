@@ -8,6 +8,4 @@ Also, I volunteer at [iSPIRT](https://ispirt.in/) to build impactful products fo
 
 I like reading books, particularly non-fiction. Besides that, I have been following Football since my early childhood, and only recently started watching Formula 1.
 
-> Reach out to me on my [email](mailto:saranshabd@gmail.com) if you have anything interesting to discuss or brainstorm. Otherwise, do send me a connection request on [LinkedIn](https://linkedin.com/in/saranshabd).
-
-Head out to [my website](https://saranshabd.com) to know more!
+Head out to [my website](https://saranshabd.com) to know more! Reach out to me on my [email](mailto:saranshabd@gmail.com) if you have anything interesting to discuss or brainstorm. Otherwise, do send me a connection request on [LinkedIn](https://linkedin.com/in/saranshabd).
